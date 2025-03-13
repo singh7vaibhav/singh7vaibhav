@@ -18,7 +18,7 @@
 ---
 
 ## 📫 How to Reach Me  
-📩 **Email:** xyz@gmail.com  
+📩 **Email:** vaibhavsingh072003@gmail.com
 🔗 **LinkedIn:** [www.linkedin.com/in/vaibhav7singh](www.linkedin.com/in/vaibhav7singh)  
 
 ---
